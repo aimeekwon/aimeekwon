@@ -1,5 +1,4 @@
-### Hi there 👋
-
+YOU NEVER FAIL IF YOU NEVER STOP TRYING 
 <!--
 **aimeekwon/aimeekwon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
